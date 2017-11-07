@@ -141,3 +141,33 @@ She jerked awake, heart in her mouth. Still in the hammock. Her eyes were open n
 Crea rolled over again, this time onto her right side, facing away from the desk. Finally she was ready to sleep. Thoughts of enormous books, stone tablets, and mysterious carvings flitted through her mind, but dissipated as quickly as they came. She sank gently into oblivion.
 
 On the other side of the cave, her screen flickered to life and the computer started to reanalyse the file that had been open last. This time, it found something different.
+
+---------
+
+The training for this mission had been rigorously routine. Crea had gone along with it, keenly aware that once she was deep in to the work on Lutati her instincts would override any sense of schedule they tried to instill. 
+
+On Sagga, sleep came in two shifts. Two bursts of a few hours when both Ava and Mira took their leave and allowed darkness to envelop one side of the planet. The in-between period when the light was soft and the world was dozy was Crea's favourite time to get things done. There was something about Mira's light, more distant and cooler, which helped Crea to think. 
+
+Mira setting did not stop her from thinking however. She could be productive just as well in darkness. Ava rising was always a surprise, and a reminder to her body and mind to collapse. To hide away and squeeze in some rest before the rest of the world realised she was missing.
+
+Lutati was eternally bathed in half light from both stars, but the eyemask they had given her to help her sleep lay untouched in a desk drawer. The first while here alone, Crea's hammock was installed in the deeper cave, too. She moved it forward herself, closer to the light, but also closer to her work, closer to the library.
+
+Crea's eyes snapped open. Air filled her lungs and she swung her legs over the side of the hammock before her brain had fully kicked in. From the chest by the cave entrance she took a different bean. This did not spawn more of its own when heated, but to her mind was far more valuable. The one crop from Earth which had survived on Sagga, though her biologist friend had once told her it took a whole handful of beans to make a pot of coffee on Earth, and you had to grind them first. Eearth people had all kinds of intricate rituals around preparing it, but on Sagga, by Crea's generation  at least, they only had one way. On Sagga, however, water was not in short supply. Crea's coffee beans were modified, not only to generate their own liquid, but also to stand in as a replacement for a full meal. 
+
+She moved to drop the bean in the pot, but it was still encrusted with brown goop from her previous meal. She pocketed the bean instead and scoured the pot with her sonic emitter. 
+
+A memory stirred, of a new discover. Not a real memory, one of a dream. Still scrubbing the pot, Crea wandered to her desk. She stopped short; there were marks in the ground beneath her chair. It was a symbol from one of the books, sketched into the sand. Parallel lines, forming circles and a sweeping arc, in duplicate, mirroring each other.
+
+Her mother's house, her mother's kitchen. No matter how long Crea had been away in the city, she was always welcome there. The fragrance of her mother's specially blended herbal tea, a unique combination of Saggan plants, filled her nostrils, and the back of her throat.
+
+Crea placed her fingertips in the grooves in the sand, and they fit perfectly. Four lines, four fingers. In between the mirrored symbols were thinner incoherent lines, where her hair had dusted the ground as she hung upside down yesterday. She dropped the pot and hopped into the seat, leaning backwards once more. Her hands rested one each on the markings, and the arcs ended at her arms' maximum reach.
+
+She sat upright, yearning for her mother's tea, and vaguely astonished that she had been studying the volumes so hard that symbols had impressed themsevles on her subconscious to such an extent that she was drawing them in the sand without realising.
+
+Her stomach growled, and she obeyed its call.
+
+Coffee was best enjoyed in direct sunlight; she took the steaming bowl to the roof of the cave and watched Lutati as she sipped. Nothing moved. Not a spiral of dust, not a breeze across the plains.
+
+Did the crevasses lead all the way through, to the other side of the moon? What would falling through be like? She had never had the opportunity to peer down; did the light reach all the way? Who had lived here, once upon a time? Maybe the crevasses had been rivers. The coffee went from bitter to floral on her tongue and she almost spat it out. As she swallowed, the taste returned to normal. 
+
+When she was a child, Crea drove her mother crazy by sitting on the kitchen worktop, willing the water to boil. Her mother would lift her down, *always in the way*, and Crea would scramble right back up as soon as her back was turned, pulling out a drawer to use for a leg up. As an adult, she would sit there too, challenging her mother to lift her down *now*.
