@@ -207,3 +207,27 @@ Hirana had shrugged. They would be the first one by her side, had they not a fam
 Hirana plied the weary Crea with coffee, then accompanied her on the tramline to the outer reach of Sagga City. Crea held Hirana for just a moment longer than usual as they hugged farewell.
 
 Crea's confinement and astro training had concluded not so long afterwards. Back in the city, Crea set about honing skills and searching out information she never knew she would need.
+
+------------------
+------------------
+
+Crea was freezing. She pressed her eyes closed and tried to go back to sleep. She tried to tug her blanket tighter but it wasn't there. But she was wrapped tightly in something. Something padded. A coat. Where had this come from? The hammock was no longer swaying.. No longer there either. Cold hard concrete pressed at her through the meager padding of the coat. She pushed her body against the only thing that seemed still to be comfortable, and that thing moved and grunted. Hyyon, her love, was soft and padded but freezing just the same. His beard and eyebrows and fringes of his fur hood were crusted in ice.
+
+She reached up a trembling hand to caress his pale cheek, but felt nothing. Not even the pressure from the inside of her glove. His lips were blue. She supposed hers were as well. She licked them and found nothing. 
+
+---------------------------
+---------------------------
+
+Slow it down, these reacts don't have to happen all at once. You're angry now, but later you might just love. (Do you love?) You don't have to swallow the anger, don't repress it. But you don't need to express it either. Do you want to hurt everyone around you? Feel the blood pound in your chest. Feel your fingernails cut grooves into your palms. Feel the scream catch in your throat and the fire burning behind your eyes. Feel these things and feel them some more. Let the scream tighten and ball up. Fill your airway, halt your breath. But don't let it go. The ringing in your ears turns to burning and joins forces with the rest of the fire in your face, filling your head with static. Formless and overwhelming. Let tears leak from the corners of your eyes. Feel them glide down your cheeks. One tiny ball of salty liquid slips into the corner of your mouth and it tastes like rage.
+
+Do not say what you are thinking.
+
+This moment, like every moment, will pass. Right now, you cannot speak, only spit. Every word is a weapon, every sentence an offensive. Do not say anything. Even if you try to be level it will come out twisted. The nicest remark has a brutal edge. Do not cut your friends just because of the pain in your own chest. They feel their own pain.
+
+Do you feel it? The prickling sensation thorughout your body? Every hair standing on end? You are surrounded by crackling electricity. You are ready to *explode*. You cannot keep this pain inside you, it permeates the air.
+
+It will pass.
+
+Close your eyes and bathe in the pain. If the tears come, let them come. Feel them, take them. Don't wipe them away. Lie still and feel your blood coursing through your veins. Feel every millimeter of your circulatory system. Choose a blood vessel and travel with it, from your heart, through your limbs, around your organs, and back to your heart. Track one which travels up, through your brain. Sit aboard the tour bus, witness the fireworks of neurons firing. The road is being built, even as you travel it.
+
+When you re-emerge, the world has changed. The things you wanted to scream are forgotten. The messages you typed and never sent, no longer make sense. Towards your tormentor, you feel only love. They were never your tormentor; just another person in pain.
