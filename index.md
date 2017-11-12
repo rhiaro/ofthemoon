@@ -236,6 +236,40 @@ The natural reaction to a small round hole is to want to pop things in it, isn't
 
 Since that day, Crea had kept safe the pebble she had picked up from the cave entrance and polished into a perfect sphere. It fit into the hole, and rattled pleasantly as it rolled through the tunnels. She waited patiently for the clunk of an obstruction, and took the tiny metal rod one of the technicians had furnished her with the first fateful time she had put the ball in the hole, and poked it into a tiny pinprick of a hole in the wall which in real life corresponded to a popular hot spring not far from Sagga City. She angled the rod just right (this had taken a while to crack) and something inside the wall shifted, allowing the ball to proceed. Three more carefully implemented interventions from Crea and the metal rod, and the ball reached the critical part of its path. With a groan, the carved area of the wall suddenly separated. Seams appeared where there were none before. Now the door could be pushed gently, and spun on a central hinge. Crea stepped inside the room, and retrieved the ball from the small groove which caught it at knee height beside the door.
 
+The door swung silently closed behind her. She stood in the only space available - the semicircle left to accommodate the door - and surveyed the room.
+
+---------
+
+I can't tell if Crea is really tired, or I am. She wants to sit on the floor, lean her back against the wall and close her eyes. I thought she was going to be unswayable, and always full of energy, but she isn't. I thought she would be easily occupied by her work, and not even notice time passing, but she's distracted.
+
+Perhaps she should mediate more. Perhaps we both should.
+
+How do I get this story moving?
+
+They need to get inside her head. Maybe the ancient race needs a name. Well, they can be Ancient Saggaans for now.
+
+First they will come to her more in dreams I suppose. She will wake up and forget, and then recall her own memories of somehow similar or related events in her life.
+
+She's trying and trying to read the symbols, but not getting anything. She's not supposed to touch the books, but I guess she is about to. As she gets frustrated she will leave the cave more. Walk out across Lutati as far as she can. 
+
+Eventually when the visions are coming more and she realises how to tap into them, she uses them as escape. When she is grounded, she is increasingly worried. One day she sees the wormhole open by Bella. She can't tell if something goes through or in which direction. She checks her equipment, but nothing is changed. No emergency transmissions or anything. She becomes more agitated and concerned. What if people leave Sagga and go back to Earth and leave her behind? Her mother won't forget her of course, and Hirana won't. Enough people know she is up here.
+
+What if Earth is re-invading Sagga? What if her colleagues and family are captured or killed. They might not tell anyone she's up there to protect her. What if she never gets back?
+
+Maybe at the end, we skip to the future. Long long future, Crea and everyone who knew her should be long gone. Humans are rediscovering Lutati... I imagine children, perhaps it's easy to get to and can be a playground now. or somewhere easy for kids to run off to, when they're not supposed to. Crea is embedded in Lutati now. Her essence is part of the moon. The kids can find something of hers and hear her story. She will live forever. And so will the Ancients.
+
+I don't know that we'll ever find out what's going on with Earth and Sagga and the wormhole. Crea doesn't know, at any rate. Maybe that's a spinoff waiting to happen.
+
+Through the books... well through Crea's experiences we're gonna learn about the Ancient Saggans. She escapes into the visions for a while, but it turns out when she does that she isn't giving anything back. For a while we just get visions and none of Crea's own memories. And then they trail off and she can't get them any more. She has to build up to working her way back in.  Maybe she panics and goes wandering off and falls down a hole and hurts herself. She gets stuck somewhere for a couple of days and has to reflect. Eventually a secret tunnel or something is revealed to her and she can crawl back to the cave. 
+
+After that, her relationship with the Saggans is more respectful. They share stories of their history, and she shares her own memories, and eventually the memories of all the people she interviewed for her thesis.
+
+Eventually she's almost always in visions or memories and never present in the physical world. To really cement this, maybe she can have an out of body experience. Or witness some present events on Sagga or Earth. She can start to see through all of time as well, and into the future. Maybe the future kids coming to Lutati are from Crea's perspective.
+
+We can have reoccurring meditation themes around her awareness of her physical body, and how this changes as she is integrated into the Ancient Saggans' visions. When she's present on Lutati, and meditating, her awareness of her body could casually extend into awareness of a different body, or several bodies, from a past point  in that location.
+
+We learn at some point that Lutati was once part of Sagga. The extinction event that wiped out the Ancient Saggans is probably the same thing that catapulted Lutati into orbit.
+
 ------------------
 ------------------
 
