@@ -236,7 +236,7 @@ The natural reaction to a small round hole is to want to pop things in it, isn't
 
 Since that day, Crea had kept safe the pebble she had picked up from the cave entrance and polished into a perfect sphere. It fit into the hole, and rattled pleasantly as it rolled through the tunnels. She waited patiently for the clunk of an obstruction, and took the tiny metal rod one of the technicians had furnished her with the first fateful time she had put the ball in the hole, and poked it into a tiny pinprick of a hole in the wall which in real life corresponded to a popular hot spring not far from Sagga City. She angled the rod just right (this had taken a while to crack) and something inside the wall shifted, allowing the ball to proceed. Three more carefully implemented interventions from Crea and the metal rod, and the ball reached the critical part of its path. With a groan, the carved area of the wall suddenly separated. Seams appeared where there were none before. Now the door could be pushed gently, and spun on a central hinge. Crea stepped inside the room, and retrieved the ball from the small groove which caught it at knee height beside the door.
 
-The door swung silently closed behind her. She stood in the only space available - the semicircle left to accommodate the door - and surveyed the room.
+The door swung silently closed behind her. She stood in the only space available - the semicircle left to accommodate the door - and surveyed the room. The air in here tasted different. She reached one slightly trembling hand forwards, and hovered it over the nearest book. Each volume was about the size of her torso. If she wanted to, she could fairly comfortably embrace one against her chest with her arms around and fingers just reaching the spine and page ends on either side. For just a moment, she felt the weight of a book pulling on her shoulders and the edge of the cover digging into her upper arms.
 
 ---------
 
@@ -269,6 +269,46 @@ Eventually she's almost always in visions or memories and never present in the p
 We can have reoccurring meditation themes around her awareness of her physical body, and how this changes as she is integrated into the Ancient Saggans' visions. When she's present on Lutati, and meditating, her awareness of her body could casually extend into awareness of a different body, or several bodies, from a past point  in that location.
 
 We learn at some point that Lutati was once part of Sagga. The extinction event that wiped out the Ancient Saggans is probably the same thing that catapulted Lutati into orbit.
+
+---------------------
+----------------------
+
+
+13 Meditate, process some more books, examine inside some.
+
+14 Dream about someone learning to read. Examine more books. Recall her own experience of learning to read.
+
+15 Examine more books. Meditate. Go for a walk as far as she reasonably can away from the cave. Make some kind of coffee cake.
+
+16 Dream about something.. dream about setting up the lunar library. Recall her own experience of setting up her thesis project in the museum.
+
+17 Process more books. Count all of her supplies. Her heating thing might be broken, but eventually she fixes it. Just needed a wiggle.
+
+18 Meditate. Fall asleep on top of the cave. Dream about things falling on her, and falling down a hole. Recall that time she fell down or out of something as a child. Wake up to find herself on the edge of the cliff or something
+
+19 Take a book out of the room and curl up in the hammock with it. Pour over the pages... this is much better than looking at the computer screen. After hours of staring at the symbols and turning carefully every page, meaning starts to come to her. She reads an epic tale of adventure across the seas of Sagga.
+
+20 She goes up to meditate. Watches the sky and sees something going on at Bella. the lunar passageway is opening... Something comes through and jets off towards Sagga and she loses sight of it. If only there was darkness here so she could see further into space.. She speculates frantically about what could be going on. She isn't asleep, but a vision of shooting stars combined with general worry or panic comes to her. People are retreating underground, into the tunnels.
+
+21 She sets off to see if she can get to the center of Lutati. It seems like a good idea at the time. She descends a crevasse and thinks about what her mother might do in the event of an invasion force from Earth. Maybe we get a hint about where her father and brother are. She falls and hurts her leg. She tries all kinds of ways to get out, up and down, and eventually tires herself out.
+
+22 In the hole, she  meditates and reflects. She has a vision of who lived on this precise bit of rock once in the past, and then the next generation, and then some huge change, and then some more inhabitants. changing technologies, changing lodgings, changing activities, over centuries.
+
+23 She thinks of her own home where she grew up, and the times she and her mother moved. She thinks of the various dorms she has stayed in and some of the people she has shared spaces with.
+
+24 A guide appears to her. Maybe an animal. It leads her through a gap in the rock she thought impassable. and then reveals a tunnel which she can fit through. She crawls in the dark for a while. In and out, she is experiencing the life of someone else who had to crawl through a tunnel. Maybe it switches between someone who was crawling through a tunnel for fun, and someone who was hiding or running away from something. By the time she emerges in the depths of what she recognises to be her cave, she is emotional and confused. She takes solace in the library.
+
+25 She meditates, and her contemplation of sensations turns into contemplation of some other body's sensations. She reads the books and tries to get lost in another epic adventure. She gets hints and flashes but nothing sticks. She recalls the epic adventure of some of the earliest settlers from Earth to Sagga. An epic adventure from the Ancients arrives in her head eventually.
+
+26 Let's assume this particular epic adventure is extremely epic. We get stuck in another story for a while. I don't really know how much time passes, but by the time she is back to reality enough to drag herself to the surface there's frequent activity at the lunar passageway, and her system has finished scanning all of the books and tablets. Somehow it categorised the unknowns itself.
+
+27 She begs the new found Ancients for help with knowing what is going on on Sagga, how she can help. She is granted visions of the dying moments of several people as Sagga is wiped out millenia ago.
+
+28 She reflects on the couples and families she has seen through the eyes of, and compares them to those she knows in her own life. Her new psychic experiences help her make sense of a few things that didn't make sense before.
+
+29 Some more story exchanges. Witnessing lifetimes go by.
+
+30 Kids in a rickety but extremely sophisticated transport show up on Lutati. They are clambering over things - Crea is watching - and they find her hammock. Her cave has caved in, everythign is buried under rubble and rocks. This starts out like a regular story/vision until the hammock is revealed as Crea's. Crea and Lutati embrace the children warmly, ready to share stories of the moon.
 
 ------------------
 ------------------
