@@ -252,6 +252,30 @@ Crea's chest rose and fell steadily. Her shoulders moved a tiny bit, in rhythm w
 
 She began to fall. No, she was floating. Pinpricks of light emerged from the blackness, floating bouncing sparks, hovering across the front of her mind like fireflies. Beyond the fireflies were smaller whiter dots. The blackness was not so black any more, the lights gave it depth. Her back and the back of her head pressed against something hard but forgiving. Her hair fell around her shoulders and back; some of it trailed into the water and she could feel it pull. She could hear the water gently lapping at the sides of the raft, inviting her in, but only playfully. It was too cold to really be enjoyed. 
 
+---------------
+
+There was no sequence of steps Crea could take in her cave that she had not taken before. She paced when she was thinking, she paced when she was done thinking and just needed some rhythm. She paced when she couldn't sleep; she paced when she was worried and she paced when she was calm. She knew the roof of the cave well too. The narrow steps that led there, steps she had carved herself both actively and passively through continued footfall. There was only one way up that wouldn't involve hanging from rocks, but once she was there she had traversed every inch of this surface as well.
+
+She had stood on every edge, peered in every direction. Watched the suns as they slowly rolled their way around Lutati's horizon. The survey team had reassured her that there were no more hidden treasures, that they had thoroughly scanned every rock about the place. But they had not discovered the second chamber, and now Crea wondered what else they had missed. If there was more out there, she knew she would find it. Even if there wasn't, Lutati was her friend, and she barely knew her. The cliff and the cave alone could surely not tell Crea all she might know about her moon. The moon, and the people who had once set foot her, in times long past.
+
+Mind made up, Crea dug a small lightweight backpack outside of her food chest. She had not needed this since she arrived. She took the time to make some flatbreads, and packed those along with a handful of coffee beans, and regular beans. She threw in her pot and her heating device. She slung the bag across her shoulder, and marched back up to the top of her cliff. Her feet were bare, but she knew Lutati would be gentle. 
+
+During her last staring contest with the horizon, Crea had figured a possible way down.  It was a sheer drop to the next flat surface, too far to jump, but a little way below the edge was a narrow crack in the rock. If she could reach the crack, she could wedge herself inside and ease her way down. Without a moment of hesitation, Crea climbed over the edge of the cliff. She hung by her hands, and dragged her feet along the rock face until she felt the opening. She could get both feet inside, about her shoulders width apart, but that was all. She searched for something to grab on to so she could lower herself down further, but the face was gentle and crumbly. Her shoulders and wrists began to cry, and she scrambled her feet against the surface searching for purchase. Suddenly the breath left her body and she dropped. She flailed wildly, and slammed her arm against the inside of the crevasse. This slowed her descent a little, and spun her into the crack in the rock. She expanded immediately, sticking out both arms and both legs, wedging herself in the gap. Barely a squeak escaped her, but her breathing was heavy. She pushed hard against the sides, and waited for her heart to slow.
+
+As the shock faded, she felt her forearms and hands and the tops of her feet searing. They were raw from the impact, but she wasn't bleeding. Lutati's sands were forgiving. She was facing outwards. She was finally seeing her moon from a slightly different perspective. The shadows cast by distant crags had shifted. Some canyons seemed deeper and wider, and some seemed now as though she could hop right over them. Lutati had so much to tell her, so much to share.
+
+She released the tension in her arms and legs a little - just a little - and allowed herself to slide. The rock ground at her heels and the sides of her feet, and dust and tiny stones embedded themselves in her skin. But this just made her closer to Lutati, that's all. As she floated downwards, she tried to peer around her own limbs to get a look at her approach. As far as she could tell, the crack remained consistent all the way to the ground. It was still a long way to go, but she could continue this means of travel.
+
+When her forearms were too sore, she changed angle. She swung her left foot to join her right on one side of the crack, and turned so her back was pressed against the other side. Then she placed her feet one below the other, over and over. Her shirt was immediately pulled up, so she occupied one hand by twisting it and holding it in place to save her back from being dragged down the rock as well.
+
+When she was a couple of feet from the ground, she simply let herself drop. She lay her head back and closed her eyes. Her legs were almost numb from the pressure she had exerted on them, and her hands and arms were still tingling. She could already feel Lutati's dust on the skin of her back where her shirt had worn away.
+
+Crea checked out every inch of the surface of her skin. In some places, she acknowledged soreness, even burning. In others, nothingness. In some places, the ache from her muscles drowned out any sensations on the surface. On her chest and stomach and lower back she could feel rolling beads of sweat. Her hands and feet were dry; the sand caking them had absorbed any hope of moisture. Her face was sweaty too, but at the same time stuck all over with the dust she had disturbed into the air during her slide. She could feel it on her lips and tried to chase it away with her tongue, but only succeeded in getting it in her mouth too. She hadn't brought any water.
+
+Finally she straightened her spine and leaned forwards, stretching over her legs. She wiped her forehead with the back of her arm, then rubbed her entire face with her palms. Spreading the dust around. She stood up, and ran her hands through her hair too. The sweat was cooling, and a little cleansing. She pulled on her backpack straps, tightening its grip so the tears in her shirt were covered. The weatherproof material of the bag was somehow jarringly cool against her exposed skin.
+
+Now the real journey began.
+
 -----------------
 
 (The Princess who Discovered the Rest of the World)
@@ -282,6 +306,7 @@ When the Princess felt herself descending back towards the palace, she was frigh
 
 When she opened her eyes, the gremlins and the grass were gone. On the ground at her feet were a small bundle and a folded piece of paper. She pulled aside one corner of the handkerchief and discovered a package of food; some pies, fruit, and hard biscuits. She closed it back up and pulled the string. The paper crackled as she opened it. It was a map Jackann had drawn her of how he could see the world from his vantage point in the bird house. If she could find her way around the chasm, she could go to him. North was further, but the south was sea. She would have to make a decision. But that was a while off yet. First, she had to get out of the palace.
 
+---------------------------------------
 ---------
 
 I can't tell if Crea is really tired, or I am. She wants to sit on the floor, lean her back against the wall and close her eyes. I thought she was going to be unswayable, and always full of energy, but she isn't. I thought she would be easily occupied by her work, and not even notice time passing, but she's distracted.
