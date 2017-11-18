@@ -276,6 +276,36 @@ Finally she straightened her spine and leaned forwards, stretching over her legs
 
 Now the real journey began.
 
+The ground here was harder and less dusty than it was around her cave. The surface was zigzagged across with cracks, and appeared consistent and flat for a good way ahead. In the distance she could see dunes, and beyond the dunes, just over the horizon, another peak. If one of these towering rocks could house a library, so could another, so that's where she headed.
+
+Crea took her time to walk to the dunes. She had all the time in the world, after all. The parched ground sometimes crumbled under her feet, and occasionally broke into pieces sharper than she expected. Her soles bled a little, but the dust soon sealed them back up, and she paid no mind.
+
+Her left shoulder was starting to glow red under Ava's gaze. Mira, further away in the other direction, was less violent towards her right side. She had left her jacket in the cave. She licked her lips, which were moist with sweat, and placed one foot in front of the other.
+
+She had walked the circumference of Lutati several times during her training months, but never had the ground pulled at her so. She had walked the distance on grass or mud, which bounced her along and sprang back in her wake. The packed sand yielded nothing, and the core of Lutati called to her whole body with much more urgency than did the core of Sagga. She persisted; one foot in front of the other.
+
+After several hundred steps, she stopped suddenly. She turned back and surveyed where she had come from. She hardly seemed to have distanced herself at all from the summit which housed her own cave. She blinked sweat out of her eyes and proceeded forwards once more. The solid flat ground was beginning to waver and quiver ahead of her. Almost as if water was pooling, but she knew that to be impossible.
+
+Suddenly the hard sand gave way beneath her. She almost fell. The world spun for a moment and she realised she had stumbled into the dunes. She let herself drop to her knees. The sand was warm but not hot. Why did sand gather here? Perhaps it moved with Lutati's orbit of Sagga, pulled like tides. The survey team had probably taken the time to explain it to her at some point, but she couldn't recall. She had spent a lot of time in the cave with technicians babbling away in the background about everything from the constellations visible from Lutati to the specifics of the rocks which made up its core. But her focus had been the wall, the carvings, the door and the secrets it held.
+
+Crea let herself drop to her knees in the dune and ran the sand through her fingers. Then she began to climb, hand over hand and foot over foot. The dune pulled at her legs and arms, massaging her skin and drinking up her sweat. It was cooler in the depths, and she embraced it. Surprisingly quickly she was at the top, and she paused half buried in sand. The side of the dune rolled down in front of her, and smoothly met another dune. The cycle continued until the peak which was her target, at the base of which sand formed great heaps that she would somehow have to climb. She could deal with that when she got there. The sand had a pinkish tint which matched the sky. Some of the dunes were topped with angles which cast dramatic shadows in two directions. The shadows right now were sharp, like they had been on in the first door when Ava was in the right position. How long would she need to wait and watch to understand the message Lutati was trying to spell out to her here?
+
+Crea looked behind her; she had unfurled chaos in her wake. The once seamless side of the dune was churned and torn from her efforts to surmount it. Perhaps she should not have come. Was she to tear a line all the way to the other peak? She didn't see that there was a choice; the peak was surrounded by dunes on every side.
+
+She shifted from her hands and knees to a seated position, shifting the sand around her to make a nest. She pulled a flatbread out of her bag and began to tear it apart. Each piece she put in her mouth was covered in sand by the time it got there, but she hardly noticed. As she crunched and chewed and swallowed, she listened to the dunes.
+
+The dunes were living, breathing creatures. Immediately beneath her she could feel the sand shifting and scrambling. It was a colony, constantly active, each individual grain chasing its own mission. They took it in turns to support her, coordinating and switching places so that she did not just sink. There was order, but adaptability too. The chaos she had brought could be worked around, and there was coherency once more. She found one grain of sand on the underside of her right leg, and followed its path. It crawled across her skin, then rolled away to join its brethren. It tunneled deeper and deeper into the dune, and joined a mass of others which were moving away from her. There was a stream, like a current, of grains all moving as one. They spiraled beneath every dune, twisting and turning to avoid other distinct whirlpools of activity, and, deep below the visible surface, poured into a hole in the rock at the base of the peak to which she was headed.
+
+Crea started to stand, then thought better of it. She loosened her body from the dune that had begun to hug her tightly, and let the grains carry her down the side. She left a single, smooth trail, which was quickly refilled.
+
+Now she had to climb again, but it wasn't so difficult this time. The dune did not give way so easily. The colony of grains of sand was pushing back, helping to keep her afloat, and guiding her feet forwards. She didn't need to use her hands this time. Perhaps a cluster of grains had taken pity on her and banded together to walk with her. She felt almost as though her feet were being lifted with each step. Once more she reached the peak of a dune, and once more she relaxed her control to glide down the other side. She didn't sit this time; the sand collaborated to keep her balanced upright.
+
+Up and down she continued, following not a straight line, but the route of the under-dune current. It twisted like a river. As she (they?) got closer to the peak, the current became harder and harder to feel. It was far beneath her now.
+
+She reached the final ascent. The sand lurched its way up the side of the rock peak, like it was desperately climbing for the sky. Or perhaps, like a hand grasping at the cliff, trying to pull it down and fold it into the ranks of the dunes. Crea started to climb, and this time the sand offered no assistance. With each step forward and up, she floated back down and was pulled deeper. She tried to use her hands for purchase, but there was nothing to hold on to. The rock face itself was still far out of reach.
+
+She paused, and ran her dust covered hands through her hair. It was plastered to her head by now, and the sand and sweat were forming a clay all over her head and face. But she hardly noticed.
+
 -----------------
 
 (The Princess who Discovered the Rest of the World)
