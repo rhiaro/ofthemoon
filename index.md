@@ -310,6 +310,26 @@ She gasped for air, and a sound escaped her that she had never made before. Her 
 
 Finally calm, she dragged her feet as she went back to her hammock. She slept again at once. When she awoke, all that remained of the experience was an unease she couldn't shake.
 
+--------------
+
+It's the easiest thing in the world to die for someone else. One decision, in a lifetime of decisions, and nothing else you ever said or did matters any more. Dara spent her life waiting for the right moment, and for the right target. She fell in love with everyone she met so that they would all be viable candidates. Her chance finally came when she was hiking with a group of friends. They planned to hike half way up the mountain, camp there, and make the peak on the following day. It was not a challenging climb. Hundreds of people or more did it every year, and the trail was well marked and well trodden, if a little steep in parts.
+
+Dara brought up the rear of the party of four, her boots crunching against the white gravel of the path. The two at the front alternated between swinging their joined hands, half wrestling and half dragging each other along. Dara loved them both, but she wasn't in love with either; that wouldn't be fair. She pushed her hands deeper into her coat pockets and focused on the back of the person in the middle of their little group. She had known Tenoin for years, stuck by him through some hard times, and some radical changes in his life. For some reason he wasn't wearing a hat or a hood, and she took a moment to admire the way the wind mussed his hair.
+
+The first rumble was gentle. Dara looked at the sky expectantly but though darkening, it was still blue and clear. A clatter by her feet as gravel rolled past. Tenoin must have kicked them up. Dara was ready to catch him if he fell.
+
+When they were teenagers who thought they knew who they were, Dara admired Tenoin from a distance. He was always around and always kind, but their lives were not entangled. In truth, Dara admired many people from afar. Several of Tenoin's friends were also the subjects of her affection. Dara was the first to notice when Tenoin began to drift from the group. Her biggest fantasy was that he would come to her and ask for help. With anything. She made sure to hang around after classes, to cross paths with him in the town center, to walk her dog through his neighbourhood at weekends. Once, he had asked her for change for the bus, and she had fallen over herself to provide it. On another occasion, he needed to borrow a book that she didn't have, and she considered briefly searching every library in town for it on his behalf before coming to her senses.
+
+The pair at the head of the group charged ahead suddenly, having scoped out a promising outcrop to pitch their tent. Tenoin looked back at Dara and beckoned with his head. She grinned and reached out her hand so he could help her along.
+
+Once, she hadn't seen or heard from him for a week. Every day she felt sicker. She was embarrassed to check up on him, he was a pretty private person. When the second week came and went she could bear it no longer and knocked on his door. His mother answered, and was relieved that someone was looking out for her offspring. They watched a movie together in a darkened room, and spoke little. Tenoin did not go outside for a long time, but Dara's visits became a regular thing.
+
+As Tenoin's gloved hand wrapped around her own, Dara's heart surged. She floated up to be by his side on the outcrop, and the four of them began laying out their things.
+
+The  mountain rumbled again, and this time the source was clearly below them. As it subsided, Dara was clutching the front of Tenoin's coat, and his arm was around her shoulders. Her every hair was on end, and it was neither the cold nor the earth shaking that caused it. She took a snapshot of this moment and set it in her mind.
+
+He pointed out to her the view. The mountain range rolled into the distance, green and grey and peaked with white. Another tremble, and small rocks clattered down around them. Expressions of concern. Thoughts about heading back down right away. Dara turned and her moment came. Without a sound she put all her weight against Tenoin's chest. He was slight, and moved easily aside. The boulder that had burst forth from the rock face leapt into her arms. The last thing she saw was the sky, and the last embrace she felt was gravity's squeeze, and she knew her purpose had been fulfilled. 
+
 ---------------
 
 There was no sequence of steps Crea could take in her cave that she had not taken before. She paced when she was thinking, she paced when she was done thinking and just needed some rhythm. She paced when she couldn't sleep; she paced when she was worried and she paced when she was calm. She knew the roof of the cave well too. The narrow steps that led there, steps she had carved herself both actively and passively through continued footfall. There was only one way up that wouldn't involve hanging from rocks, but once she was there she had traversed every inch of this surface as well.
