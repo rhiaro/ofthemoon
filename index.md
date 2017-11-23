@@ -405,6 +405,24 @@ She reached the final ascent. The sand lurched its way up the side of the rock p
 
 She paused, and ran her dust covered hands through her hair. It was plastered to her head by now, and the sand and sweat were forming a clay all over her head and face. But she hardly noticed.
 
+Crea gazed up at the peak with her hands on her hips. This one felt a little taller than the one which housed her cave. Even if she surmounted the sand pile, she would reach a sheer rock face which she was not particularly well equipped to climb. And even then, she had no idea if climbing to the peak would yield any kind of entrance. From her perspective at the base there were no obvious caves. Maybe Lutati knew that and wanted her to try something else.
+
+She turned her back to the rock and sat down, nestling a hole in the sand. Her knees were at ninety degrees, and her feet jostled footholds until she was stable. She could see her own cliff. It was going to be a long walk back. Crea closed her eyes; her back was straight and unsupported except a little at the base where the sand was piled, and her hands rested on her knees.
+
+Her breathing slowed and her heart returned to its normal rhythm. A bead of sweat ran down her temple. The blood pounded in her feet, and heat radiated from them. Thousands of grains of sand pushed at her lower back, her bottom, and the backs of her thighs. Beyond the parts of Lutati in direct contact with her body, however, there was nothing. Only stillness.
+
+Then the pressure of the sand was suddenly relieved. Her heart jumped to her mouth and she floated for a moment. She felt the warm embrace of the grains as they crawled around her thighs, up her legs, and wrapped around her waist. When she felt it reach her fingertips, she held tight to her knees. She licked her dry lips, but kept her eyes closed as she felt it crawl up her arms and smother her chest. When she felt it on her neck she opened her eyes. The sand had not risen up, merely made way for her to enter its depths. She sucked in a huge breath and closed her eyes again before it enveloped her face.
+
+The grains continued to rush around her. She could feel them flowing by adjusting to accommodate her body. She wondered briefly if her backpack was well sealed. Though she could feel sand on her cheeks and forehead, her lips and eyelids were untouched. She tentatively opened her eyes and gasped at the rush of colour before her. She witnessed now shades of oranges, browns and pinks that she had never seen on the surface of the moon. These spectacular granules were underneath her clothes scrubbing every inch of her skin as they eased her down.
+
+Before her eyes, a story played out. A drama in a thousand acts. A child with skin much darker than her own ran through lush green grass, mud squelching beneath his feet, plucking any tips his fingertips chanced to brush. He emerged into a clearing and joined his sisters. They danced and played with rocks and sticks until it was night. This family knew only each other, and that was enough. They aged and touched and the women bore children and the boy who had run through the grass had many sons and daughters. They too ran through the grass, and climbed trees to pick nuts and berries.  Some of them hunted small rodents with spears, and some of them hunted each other. 
+
+When the cave was full they tore apart the trees and made shelters from branches and palm fronds. As members of the family grew older they asserted themselves, or left. Every few decades, someone not from the family arrived, and often they stayed. The family grew and built and grew and built.
+
+One day almost all of them disappeared, and the story was passing so fast that Crea almost missed the reason. A wave of invaders had swept through, a different family. They kidnapped and killed, burned the houses and departed. A few remained, nursing their wounds. They rebuilt their lives, rebuilt the family, and the family became a village again. Crea had so many minds in her head, loving and hating, fighting and fixing. Every tear she shed was gobbled by the sand.
+
+More visitors came in time, peaceful and bearing novel things from the rest of the world. The village traded and built and traded and built and became a town, then a city. The time of running through the grass was gone. Now children ran over cobblestone and climbed walls instead of trees. Death found new ways to manifest, and the people found new ways to fend it off. Crea felt sickness and starvation. She felt her bones wither and then burst into new life. She felt the wonder of seeing the world for the first time, and the exhaustion of seeing it every day for one hundred years. Every grain of sand which touched her skin brought with it a new life to experience.
+
 -----------------
 
 (The Princess who Discovered the Rest of the World)
