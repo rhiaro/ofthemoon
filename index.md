@@ -284,19 +284,6 @@ She had no idea how long she spent in that room on the day she found it. She had
 
 --------------
 
-When the final survey team shift returned to Sagga, the first thing Crea noticed was the enveloping silence. The last sound she heard that wasn't made by her was the fading chug of the departing shuttle. For a while, her footsteps were deafening. The low hum of her computer was maddening. If she dropped a pot, the sound reverberated across the whole moon, circulating once and coming back at her from behind. She found herself apologising under her breath for disturbing Lutati.
-
-She soon realised Lutati was unshakable. Its surface was still, but the vibrations of her equipment joined the rumble of the perpetually shifting dust and sand. From her position on the roof of the cave she could hear it all. Sometimes, she could even feel the quiver of the moon's slow rotation.
-
-Sitting up there and taking in Lutati's murmurs quickly became the best way to clear her mind and let all she had observed from the contents of the library settle into her subconscious. A series of unfamiliar sounds, though distant, she was immediately alert to. From the sky, they came; high pitched squeaks combined with dull tapping. Though Crea had never seen birds of any kind before, she recognised seagulls at once. A flock was circling, in no kind of coherent formation, cartwheeling and diving around each other. Their calls were backed by the roar and crash of waves. Lutati's orange-pink landscape had been replaced by blue sky and blue ocean, and the taste of dust turned to salt and spray.
-
-Crea was perched far above the waves. She wriggled to the edge of the cliff to peer down, letting her legs drop over the side. The water was smashing hard into rocks below, the white foam almost reaching her toes on occasion. She took a long, deep breath, and stared up at the sky. Ava and Mira were not giants on the horizon, but far above her. She could see and feel them both, and the perspective was familiar. Her fingers rested on sand, but it was much finer, soft and white. A few blades of coarse grass poked through.
-
-Eternity passed, and the sand reshaped itself the harsh orange granules she had grown used to. Ava and Mira swooped inwards, repainting the sky. The water was gone, and the sky emptied. The last caw of a seagull faded away, and the smell of the ocean lingered in Crea's head.
-
----------------------
-
-
 Crea dropped a coffee bean in the pot and turned on the heat. She sat down beside it in the entrance of the cave and watched the patiently unmoving landscape. She did not feel like eating; her stomach was already full of lead. Or perhaps it was sand. 
 
 She had lost track of what time it would be on Sagga, but the odds were good that her mother was preparing a meal. Her mother once shared memories she had of her family's garden on Earth. Growing one's own food on a small scale was a novel and exciting idea to Crea. On Sagga, this was best left to experts.
@@ -316,6 +303,24 @@ Crea faced into the cave, hands on her hips, and sighed. It was getting pretty c
 She retrieved the pot and placed the heating device carefully beside the sonic one, near her desk. The contents of the pot had puffed up and grown into a light and fluffy cake. She held it close to her face and inhaled the coffee scent. Then she grabbed a spoon, and took the pot up the steps to the roof of the cave. She sat cross-legged in her usual spot, and dug in.
 
 -----------------------
+
+When the final survey team shift returned to Sagga, the first thing Crea noticed was the enveloping silence. The last sound she heard that wasn't made by her was the fading chug of the departing shuttle. For a while, her footsteps were deafening. The low hum of her computer was maddening. If she dropped a pot, the sound reverberated across the whole moon, circulating once and coming back at her from behind. She found herself apologising under her breath for disturbing Lutati.
+
+She soon realised Lutati was unshakable. Its surface was still, but the vibrations of her equipment joined the rumble of the perpetually shifting dust and sand. From her position on the roof of the cave she could hear it all. Sometimes, she could even feel the quiver of the moon's slow rotation.
+
+Sitting up there and taking in Lutati's murmurs quickly became the best way to clear her mind and let all she had observed from the contents of the library settle into her subconscious. A series of unfamiliar sounds, though distant, she was immediately alert to. From the sky, they came; high pitched squeaks combined with dull tapping. Though Crea had never seen birds of any kind before, she recognised seagulls at once. A flock was circling, in no kind of coherent formation, cartwheeling and diving around each other. Their calls were backed by the roar and crash of waves. Lutati's orange-pink landscape had been replaced by blue sky and blue ocean, and the taste of dust turned to salt and spray.
+
+Crea was perched far above the waves. She wriggled to the edge of the cliff to peer down, letting her legs drop over the side. The water was smashing hard into rocks below, the white foam almost reaching her toes on occasion. She took a long, deep breath, and stared up at the sky. Ava and Mira were not giants on the horizon, but far above her. She could see and feel them both, and the perspective was familiar. Her fingers rested on sand, but it was much finer, soft and white. A few blades of coarse grass poked through.
+
+Eternity passed, and the sand reshaped itself the harsh orange granules she had grown used to. Ava and Mira swooped inwards, repainting the sky. The water was gone, and the sky emptied. The last caw of a seagull faded away, and the smell of the ocean lingered in Crea's head.
+
+A truly unfamiliar sound pierced the quiet. It wasn't loud, but it was big. Just distant, and roaring. Crea's eyes snapped open. Something was happening in the sky near Bella. The dusky orange looked like water that someone had released a drop of ink into. A midnight blue was spreading out from a point, twisting and spiraling outwards. It began to obscure the edge of Bella's silver white silhouette. The roar got louder and louder and Crea's whole body was tense. There were some flashes of light at different points across the black octopus and against Bella's surface as well. The roar stopped and the dark shape abruptly collapsed in on itself.
+
+Crea's eyes were dry from not blinking, and her hands had involuntarily clamped themselves over her mouth. Did she just witness the Lunar Passageway opening once more?
+
+She hastened back down to the cave and checked her computer for messages. The software was as inanimate as it had been for months, but she left it running in case something was to come through. If something had come through from Earth though, the people on Sagga probably had other things to think about than one woman on a moon. Her mother would be in touch if only she knew how to operate the equipment herself. Perhaps she would ask the scientists, insist even, if they hadn't left by now.
+
+---------------------
 
 Walking around with the weight of the world, not on her shoulders but in her stomach. They weren't even her problems, weren't even her pain. She had grown attached to her new friend very quickly, and now she was afraid for him. Afraid, and utterly powerless, not only in action but in words as well. All she could do was exist in sympathy, watch out for burdens and stumbling blocks and ease them wherever she could. She tried with all her might to just emit compassion whenever she was around him. It didn't make sense for her to care so soon, and quite this much, so she could not express it. What if she never had the chance to? Whenever she met his eyes she started to transmit her feelings, but always looked away. She had no idea if he noticed. She wanted to tell him how she felt, but language was so weak that a great injustice would be done if she tried. Her heart beat for his wellbeing, but to say as much would be diluting. No expression at all was better than cheap muted sentiments. It was better he knew nothing than knew half of the story.
 
