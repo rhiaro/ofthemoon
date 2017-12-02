@@ -638,6 +638,8 @@ When the Princess felt herself descending back towards the palace, she was frigh
 When she opened her eyes, the gremlins and the grass were gone. On the ground at her feet were a small bundle and a folded piece of paper. She pulled aside one corner of the handkerchief and discovered a package of food; some pies, fruit, and hard biscuits. She closed it back up and pulled the string. The paper crackled as she opened it. It was a map Jackann had drawn her of how he could see the world from his vantage point in the bird house. If she could find her way around the chasm, she could go to him. North was further, but the south was sea. She would have to make a decision. But that was a while off yet. First, she had to get out of the palace.
 
 ---------------------------------------
+
+Crea woke and slept on her body's schedule. Just as she did most days, she sat cross-legged on the roof of the cave, relishing in the bliss that comes of knowing there is nobody and nothing around which could disturb her. Of knowing that this was her place, that to exist here was her right. She stayed as long as she felt like, relaxed and free. She listened to the vibrations of Lutati, and the hums of her own body. Often, they were synchronised.
 ---------
 
 I can't tell if Crea is really tired, or I am. She wants to sit on the floor, lean her back against the wall and close her eyes. I thought she was going to be unswayable, and always full of energy, but she isn't. I thought she would be easily occupied by her work, and not even notice time passing, but she's distracted.
